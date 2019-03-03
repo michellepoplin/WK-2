@@ -1,4 +1,4 @@
-## Week 1 (Recommended) Assignment - That Portfolio Though
+## Week 1 (Recommended) Assignment - 
 
 ### Overview
 
